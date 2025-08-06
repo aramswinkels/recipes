@@ -1,6 +1,6 @@
 # Guacamole
 ## Ingredients
-* avocado
-* lime
-* salt
+* avocado   £1.49
+* lime	    £0.50		
+* salt      £1.30 (per kg)
 ## Instructions 
